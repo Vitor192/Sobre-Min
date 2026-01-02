@@ -13,11 +13,11 @@ Também estou sempre aberto a aprender e estudar **novas tecnologias**.
 
 ## 🚀 Minha jornada no setor comercial.
 
-Possuo Mais de 4 anos de experiência, com atendimento comercial, negociações, pós vendas, esse ano de 2025 até o mês de Setembro, foram mais de R$500.000,00 reais de negociações bem sucessida. 
+Possuo Mais de 4 anos de experiência, com atendimento comercial, negociações, pós vendas, esse ano de 2025 até o mês de Setembro, foram mais de R$1.000.000,00 reais de negociações bem sucessida. 
 
 Atuamente estou migrando de carreria comercial para Tecnologia. 
 
-Em Janeiro de 2025 comecei minha graduação em Engenharia de Software e estou no Segundo Semestre. 
+Em Janeiro de 2025 comecei minha graduação em Engenharia de Software e estou no Terceiro Semestre. 
  
 
 ## 🎯 Interesses pessoais
